@@ -1,2 +1,4 @@
 # neural
 assignment 1 
+KESARA CHENNA PRANEETHREDDY
+700756460
